@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with steal a brainrot Scripts vip, the #1 Script. Includes teleport and auto-sell for unbeatable
 
 
 
